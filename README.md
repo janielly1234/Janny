@@ -1,0 +1,2 @@
+# Janny
+dominar a humanidade
